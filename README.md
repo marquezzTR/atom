@@ -1,0 +1,2 @@
+# atom
+hayatı tesbih yapmışam
